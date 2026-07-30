@@ -1,2 +1,2 @@
-# wiki_group_resources
+# wiki_entrepreneurship_resources
 Key resources
